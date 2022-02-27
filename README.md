@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @gabrielleanne0
+- 👀 I’m interested in solving, reading, writing, and designing
+- 🌱 I’m currently learning humanities and social sciences to enhance my speaking skills
+- 💞️ I’m looking to collaborate on different types of websites for my school works
+- 📫 How to reach me ... gabrielleanne113@gmail.com
